@@ -8,4 +8,4 @@ This space is my digital lab:
 - 🚀 Track my professional growth
 - 🔍 Experiment with new tools and platforms
 
-Thanks for stopping by!
+Thanks for stopping by! :)
